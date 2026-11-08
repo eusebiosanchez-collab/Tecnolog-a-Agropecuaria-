@@ -1,6 +1,9 @@
 # Tecnología Agropecuaria-
+
 En la educación media agropecuaria, la evaluación permite comprobar si los estudiantes han adquirido los conocimientos, habilidades y actitudes necesarios para desempeñarse en actividades agrícolas y pecuarias.
 Artículo de Investigación sobre la Creatividad
+
+
 Estudiantes: Enaro Baker, Hillary Montenegro, Lipny Cire, Moise Galindo y Eusebio Sánchez
 
 Disciplina seleccionada: Tecnología agropecuaria
